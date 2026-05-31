@@ -16,7 +16,7 @@ Ready to run a professional, fully-loaded GPT empire? The **PRO Version** is ava
 *   **Complete Custom Tasks Engine:** Create your own tailored offers, micro-tasks, and custom advertiser campaigns directly from the admin panel.
 *   **FREE 24-Hour Installation Support:** I will personally deploy and configure the PRO version on your hosting server.
 
-👉 **([CLICK HERE TO BUY THE PRO VERSION ON SCRIPTSTORE.XYZ](https://scriptstore.xyz/paidoffers-script-gpt-system)** 
+👉 **[CLICK HERE TO BUY THE PRO VERSION ON SCRIPTSTORE.XYZ](https://scriptstore.xyz/paidoffers-script-gpt-system)** 
 
 ---
 
